@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @feer00101
- 😄 Pronouns: el
+
 
 
 <!---
